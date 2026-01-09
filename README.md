@@ -40,6 +40,6 @@
 
   ## Contacto
 
-  Si tienes preguntas sobre esta política de privacidad, puedes contactarnos en: [tu_email@ejemplo.com]
+  Si tienes preguntas sobre esta política de privacidad, puedes contactarnos en: [gustavofrancomarketing@gmail.com]
 
   ---
